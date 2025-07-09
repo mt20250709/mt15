@@ -10,4 +10,4 @@
 
 这些资源提供了丰富的视频内容，包括高质量的中文字幕、各种高清影片。无论你是在寻找中文字幕的经典作品，还是在探索最新的电影和节目，这些平台都能满足你的需求。享受更多便捷的在线观看体验，无需额外下载，直接观看。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mt20250709/mt15 ）</span>
